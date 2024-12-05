@@ -2,7 +2,14 @@
 
 Después que se anunciara el regreso de la actriz en 'Nina de azúcar', una producción de Del Barrio Producciones, surgieron especulaciones sobre un supuesto video filtrado de Melissa Paredes, donde supuestamente se muestra en situaciones comprometedoras.
 
-La joven de 34 años ha decido retomar su colaboración de la mano de Milleche Alexander, donde ambas debutan el proyecto que se estero el pasado 2 de diciembre en América TV, Melissa ha logrado consolidar una notable carrera en la industria del entretenimiento, por lo que las afirmaciones de los internautas en cuanto al video intimo la han puesto en el ojo del huracán.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 Según se especula en redes sociales como TikTok y Twitter el metraje explicito está disponible en múltiples plataformas sociales, entre ellos Telegram y Twitter, donde la actriz se muestra en situaciones comprometedoras.
 
